@@ -1,0 +1,2 @@
+# shemach
+shemachoch for Ethiopia
